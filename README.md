@@ -7,9 +7,8 @@ Join the RevoltEdge Discord server!
 https://discord.gg/JqVMfUHzEF
 
 
-
-https://github.com/kaidadnd/Revolt/assets/149662766/96e16a4d-0fdc-4600-9358-60f594c63c38
-
+# 👀 What is Revolt?
+RevoltEdge is your #1 source for Edgenuity answers . Get 100% Scores on all activities and Skip Videos! Revolt is the Best Edgenuity script & hack / Bot
 
 # 🔍 How It Works
 
