@@ -1,27 +1,16 @@
 
-# 🚀 Revolt Edgenuity Bot
+# 🚀 The best Edgenuity Bot
+Revolt is the #1 Edgenuity hacks
 
 Join the RevoltEdge Discord server!
 
-
 https://discord.gg/JqVMfUHzEF
+ ️‍
+🎯100% Accurate
+🕵️Completely Undetectable
+🤖Fully automated
 
-
-# 👀 What is Revolt?
-RevoltEdge is your #1 source for Edgenuity answers . Get 100% Scores on all activities and Skip Videos! Revolt is the Best Edgenuity script & hack / Bot
-
-# 🔍 How It Works
-
-Revolt is a Tampermonkey script that is as easy as a two-click install. Once installed, it will seamlessly integrate Into any website, automatically completing assignments, quizzes, and tests. It can even skip some videos!
-
-
-# 🔍 What It Does
-
-Revolt is the #1  fully automated CourseTool.
-
-Features:
-
-🌟 Interactive UI
+## What can revolt do?
 
 ✨ Auto Assignments
 
@@ -29,17 +18,13 @@ Features:
 
 ✨ Auto Advance
 
+✨ Brainly Lockpick
+
 ✨ Duplicate Tabs
 
 ✨ Frame Unlocker
 
-✨ Brainly Lockpick
-
 And more+
-
-Fully Automated 🔒
-
-Works on all types of coursework!
 
 Edgenuity Script
 Edgenuity Hacks
