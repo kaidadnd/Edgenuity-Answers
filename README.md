@@ -4,11 +4,18 @@ Revolt is the #1 Edgenuity hacks
 
 Join the RevoltEdge Discord server!
 
+
+
 https://discord.gg/JqVMfUHzEF
  ️‍
 🎯100% Accurate
+
+
 🕵️Completely Undetectable
+
+
 🤖Fully automated
+
 
 ## What can revolt do?
 
