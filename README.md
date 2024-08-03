@@ -12,6 +12,9 @@ Join the **Revolt Discord server!**
 🤖 **Fully automated**
 
 
+https://github.com/user-attachments/assets/31dc4726-10d6-495e-ad7b-aafd5f0afbec
+
+
 ## **What can Revolt do?**
 
 ✨ **Auto Assignments**
