@@ -11,6 +11,7 @@ Join the **Revolt Discord server!**
 
 🤖 **Fully automated**
 
+
 ## **What can Revolt do?**
 
 ✨ **Auto Assignments**
