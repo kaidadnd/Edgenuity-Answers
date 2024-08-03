@@ -1,7 +1,7 @@
 # 🚀 The best Edgenuity Bot
 Revolt is the #1 Edgenuity hack
 
-Join the RevoltEdge Discord server!
+Join the Revolt Edgenuity Discord server!
 
 [https://discord.gg/JqVMfUHzEF](https://discord.gg/JqVMfUHzEF)
 
